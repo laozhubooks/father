@@ -43,15 +43,15 @@ _呱 呱 呱，
 
 在深情的一首Your Song后，Elton John把他的结束曲定位到Farewell yellow brick road。一扫前曲的柔情，分明就是革命青年的歌。摘录一段歌词如下：
 
-_So goodbye yellow brick road   
+So goodbye yellow brick road   
 Where the dogs of society howl   
 You can't plant me in your penthouse   
-I'm going back to my plough_
+I'm going back to my plough
 
-_Back to the howling old owl in the woods   
+Back to the howling old owl in the woods   
 Hunting the horny back toad   
 Oh I've finally decided my future lies   
-Beyond the yellow brick road_
+Beyond the yellow brick road
 
 是的，即便老朱情感真实而丰富，即便他具备文艺青年艳羡的所有才华，但是他并不是文艺青年。老朱是个理性主义，对生活充满着热情和对社会充满关怀的少有组合。老朱常常引用康德的话 ：“世界上只有两样东西是值得我们深深景仰的，一个是我们头上的灿烂星空，另一个是我们内心的崇高道德法则。” 还有一句王尔德的话他也常常提起。“我们都生活在阴沟里，但仍有人仰望星空。” 我想这就是他为什么在儿歌里说“火娃变成了宇航员”的原因吧。当然，他的本意并非让你真正成为宇航员。虽然，你如果能成为宇航员，我和老朱会非常骄傲。因为，成为宇航员必须拥有矫捷的身体，缜密的头脑和坚强的心灵。而这三点正是我和老朱最希望你拥有的。
 
