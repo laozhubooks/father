@@ -7,4 +7,5 @@
 * [&lt;里面的故事&gt;书评二则](li-mian-de-gu-shi-shu-ping-er-ze.md)
 * [我走的时候](wo-zou-de-shi-hou.md)
 * [一路上](yi-lu-shang.md)
+* [又是冬天 又是过年 又见阳光](you-shi-dong-tian-you-shi-guo-nian-you-jian-yang-guang.md)
 
