@@ -6,4 +6,5 @@
 * [客居故乡](ke-ju-gu-xiang.md)
 * [&lt;里面的故事&gt;书评二则](li-mian-de-gu-shi-shu-ping-er-ze.md)
 * [我走的时候](wo-zou-de-shi-hou.md)
+* [一路上](yi-lu-shang.md)
 
