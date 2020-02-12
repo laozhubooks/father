@@ -1,3 +1,7 @@
+---
+description: 朱正琳/文    此文收录于书 <外面的世界>
+---
+
 # 北戴河纪事：海的那边还是海
 
 ### 1
@@ -234,34 +238,34 @@ _天边的云
 附上保罗·西蒙所唱歌词，也算是我最喜欢的一首歌词。——  
 
 
-El Condor Pasa \(if I Could\) Lyrics  
+_El Condor Pasa \(if I Could\) Lyrics_  
 
 
-I'd rather be a sparrow than a snail  
+_I'd rather be a sparrow than a snail  
 Yes I would  
 If I could, I surely would  
-Hmm mmm  
+Hmm mmm_  
 
 
-I'd rather be a hammer than a nail  
+_I'd rather be a hammer than a nail  
 Yes I would  
 If I only could, I surely would  
-Hmm mmm  
+Hmm mmm_  
 
 
-Away, I'd rather sail away  
+_Away, I'd rather sail away  
 Like a swan that's here and gone  
 A man gets tied up to the ground  
 He gives the world its saddest sound, its saddest sound  
-Hmm mmm  
+Hmm mmm_  
 
 
-I'd rather be a forest than a street  
+_I'd rather be a forest than a street  
 Yes I would    
 If I could, I surely would  
 I'd rather feel the earth beneath my feet  
 Yes I would  
-If I only could, I surely would  
+If I only could, I surely would_  
 
 
 我于当天（2014.3.11.）深夜回复。——  
