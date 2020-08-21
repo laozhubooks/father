@@ -24,42 +24,42 @@ Indian Sunset这首将近五十年的歌 ，配上了各种打击乐器的编曲
 
 比如说，老朱经常给你唱的一首歌谣。很有可能改编自他奶奶给他唱的歌谣。
 
-_我家有个小火娃，   
+_我家有个小火娃，  
 今年才三岁，  
-玲珑会说话，   
-不吃饭，不喝茶，   
+玲珑会说话，  
+不吃饭，不喝茶，  
 整天笑哈哈。_
 
 又如，我们家门口的公园 有只石头做的大青蛙， 你常常爱骑上去。老朱给你编了下面的这首歌谣。
 
-_呱 呱 呱，   
-我是一只大青蛙，   
-跳进河里捉小虾，   
-爬上岸来驮火娃，   
-驮着火娃飞上天，   
-挂到月亮上打秋千，   
-秋千下来上飞船，   
+_呱 呱 呱，  
+我是一只大青蛙，  
+跳进河里捉小虾，  
+爬上岸来驮火娃，  
+驮着火娃飞上天，  
+挂到月亮上打秋千，  
+秋千下来上飞船，  
 火娃变成了宇航员。_
 
 在深情的一首Your Song后，Elton John把他的结束曲定位到Farewell yellow brick road。一扫前曲的柔情，分明就是革命青年的歌。摘录一段歌词如下：
 
-So goodbye yellow brick road   
-Where the dogs of society howl   
-You can't plant me in your penthouse   
+So goodbye yellow brick road  
+Where the dogs of society howl  
+You can't plant me in your penthouse  
 I'm going back to my plough
 
-Back to the howling old owl in the woods   
-Hunting the horny back toad   
-Oh I've finally decided my future lies   
+Back to the howling old owl in the woods  
+Hunting the horny back toad  
+Oh I've finally decided my future lies  
 Beyond the yellow brick road
 
 是的，即便老朱情感真实而丰富，即便他具备文艺青年艳羡的所有才华，但是他并不是文艺青年。老朱是个理性主义，对生活充满着热情和对社会充满关怀的少有组合。老朱常常引用康德的话 ：“世界上只有两样东西是值得我们深深景仰的，一个是我们头上的灿烂星空，另一个是我们内心的崇高道德法则。” 还有一句王尔德的话他也常常提起。“我们都生活在阴沟里，但仍有人仰望星空。” 我想这就是他为什么在儿歌里说“火娃变成了宇航员”的原因吧。当然，他的本意并非让你真正成为宇航员。虽然，你如果能成为宇航员，我和老朱会非常骄傲。因为，成为宇航员必须拥有矫捷的身体，缜密的头脑和坚强的心灵。而这三点正是我和老朱最希望你拥有的。
 
 借用胡适先生给他儿子写的诗最后几句送给你。
 
-_将来你长大时，   
-这是我所期望于你：   
-我要你做一个堂堂的人，   
+_将来你长大时，  
+这是我所期望于你：  
+我要你做一个堂堂的人，  
 不要做我的孝顺儿子_。
 
 罗素还说的一句话：“父亲们最根本的缺点，在于想要自己的孩子为自己争光。” 可以和胡适先生的这几句呼应。作为父亲的老朱并没有这个缺点。作为父亲的我可能也没有。
@@ -68,9 +68,9 @@ _将来你长大时，
 
 最后用老朱常给你读的一首童谣结束吧。
 
-_秋风秋风吹吹，   
-树叶树叶飞飞．   
-就像一群蝴蝶，   
+_秋风秋风吹吹，  
+树叶树叶飞飞．  
+就像一群蝴蝶，  
 张开翅膀追追．_
 
 2019年匹兹堡缤纷的秋天的确是个告别的好季节。
